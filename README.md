@@ -20,4 +20,4 @@
 结语  
 通过正规的视频平台观看日本AV，不仅能享受到高清、流畅的播放体验，还能保证内容的丰富和多样性，让观影之旅充满乐趣和满足感。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/nff4046866/xyzav04 )</span>
